@@ -1,5 +1,7 @@
 ### Nice to meet you, I am Ameera!
  
- Test1
- Test2
- Test3
+- 🔭 I just 
+- 🌱 I’m currently learning everything 🤣
+- 👯 I'm
+- 🥅 2021 Goals: 
+- ⚡ Fun fact: 
